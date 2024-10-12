@@ -1,3 +1,5 @@
+![image](https://github.com/user-attachments/assets/8d3bfa70-2982-4963-891d-acfa4e7e00ed)
+
 # Motivation
 Why TRS updates rarely happen and general sentiments towards ro football (from my perspective)
 
